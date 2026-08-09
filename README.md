@@ -4,6 +4,6 @@ yolanda guo
 
 gbda @ [university of waterloo](https://uwaterloo.ca/)
 * vp of visual design @ [hack canada](https://hackcanada.org/)
-* designer @ [hack the north] (https://hackthenorth.com/)
+* designer @ [hack the north](https://hackthenorth.com/)
 
 [linkedin](https://www.linkedin.com/in/yolanda-guo156) • [gmail](mailto:yolandaguo156@gmail.com)
